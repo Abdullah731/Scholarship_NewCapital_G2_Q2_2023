@@ -1,0 +1,1 @@
+# Scholarship_NewCapital_G2_Q2_2023
